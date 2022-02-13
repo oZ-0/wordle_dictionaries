@@ -1,0 +1,1 @@
+# Words for https://wordle.louan.me/
